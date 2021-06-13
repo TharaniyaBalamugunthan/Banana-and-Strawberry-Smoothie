@@ -3,7 +3,7 @@ It is the **best** refreshment you can every have. With many fruits, it is not o
 but it is also *healthy*. **Try it and enjoy** !!! 
 
 **Ingredients** 
-Ingredients 
+
 - Frozen Strawberries
 - Banana
 - Milk or Water 
